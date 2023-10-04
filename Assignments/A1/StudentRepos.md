@@ -72,3 +72,29 @@ Sudeshna Mullaguru : https://github.com/Sudeshna31/Introduction
 Akhil Sura - https://github.com/akhilsura28/Introduction
 
 Manoj Arasada : https://github.com/manoj-arasada/Introduction
+
+Krishnasai Chaluvadi : https://github.com/KrishnaKSD3004/Introduction
+
+ShreyaReddy Vurelly : https://github.com/shreya-vurelly/Introduction
+
+Manasa Swetha : https://github.com/Rohini2005/Introduction
+
+Rahul Vemula : https://github.com/vemula-rahul/Introduction
+
+Uma Srikanth Reddy Koduru : https://github.com/KoduruSrikanth/Introduction
+
+Sree Krishnakanth Gurram - https://github.com/Srikanth1823/Introduction
+
+Pradeep Reddy Yenreddy : https://github.com/pradeep-reddy-yenreddy/Introduction
+
+srinandini ganisetty : https://github.com/SriNandini99/Introduction
+
+vijay tej pasagadugula : https://github.com/vijaytejp/introduction
+
+Rishika Nidiganti - https://github.com/rishinidi/Introduction
+
+Ranjith Reddy Yellamgari : https://github.com/RanjithReddyYellamgari/Introduction
+
+Saranya Chintalapati : https://github.com/SaranyaChintalapati/INTRODUCTION
+
+Keerthi Bai reddy:https://github.com/Keerthibaireddy/Introduction
